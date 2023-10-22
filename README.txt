@@ -6,7 +6,7 @@ Team members:
 Majdi Nagi
 Karma Gurung
 RIgsang Doma
-Abdullah Alazzani
+Amjad Naji
 ABout the document: 
 
 The three working pages:
